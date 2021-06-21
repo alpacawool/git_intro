@@ -1,1 +1,2 @@
-Patricia Booth 
+Patricia Booth
+boothpat@oregonstate.edu
