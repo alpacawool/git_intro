@@ -1,2 +1,1 @@
-Patricia Booth 
-45
+Patricia Booth
